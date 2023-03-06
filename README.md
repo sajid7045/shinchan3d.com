@@ -1,1 +1,0 @@
-# shinchan3d.com
